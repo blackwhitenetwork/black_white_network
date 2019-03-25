@@ -175,3 +175,11 @@
 <a name="406bb6aa"></a>
 ## 9.0 申请试用
 
+[填写表单，申请试用](http://blackwhite.mikecrm.com/5X7qyEx)
+
+[分享海报下载](./img/poster.png)
+
+分享海报，截屏上传，即可获得1周的免费试用。
+
+
+
